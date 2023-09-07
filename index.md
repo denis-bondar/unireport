@@ -82,5 +82,5 @@
 ## Δημοσιεύσεις
 Καταστατικό
 Ισολογισμός Χρήσης 2022
-
+[UNIREPORT_%CE%925_2022_ypografes](https://github.com/denis-bondar/unireport/blob/gh-pages/UNIREPORT_%CE%925_2022_ypografes.pdf)
 
