@@ -78,3 +78,7 @@
 ## Στοιχεία μελών / εταίρων
 1. Ο εταίρος DENIS BONDAR του STEPAN και της NINA
 2. Ο εταίρος NATALIA SHUSHUNOVA του SERGEY και της TATIANA
+
+## Δημοσιεύσεις
+Καταστατικό
+
