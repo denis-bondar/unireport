@@ -83,6 +83,7 @@
 Καταστατικό
 Ισολογισμός Χρήσης 2022
 
+
 [UNIREPORT_Β5_2022_ypografes](https://unireport.gr/UNIREPORT_%CE%925_2022_ypografes.pdf)
 
 [UNIREPORT_Β6_2022_ypografes](https://unireport.gr/UNIREPORT_%CE%926_2022_ypografes.pdf)
