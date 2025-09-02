@@ -89,4 +89,5 @@
 [ΠΡΑΚΤΙΚΟ UNIREPORT ΥΠΟΓΡΑΦΗ](https://unireport.gr/%CE%A0%CE%A1%CE%91%CE%9A%CE%A4%CE%99%CE%9A%CE%9F%20UNIREPORT%20%CE%A5%CE%A0%CE%9F%CE%93%CE%A1%CE%91%CE%A6%CE%97.PDF)
 
 [2024 UNIREPORT ΟΙΚΟΝΟΜΙΚΕΣ ΚΑΤΑΣΤΑΣΕΙΣ.PDF](https://unireport.gr/2024%20UNIREPORT%20ΟΙΚΟΝΟΜΙΚΕΣ%20ΚΑΤΑΣΤΑΣΕΙΣ.PDF)
+
 [2024 UNIREPORT ΠΡΟΣΑΡΤΗΜΑ.PDF](https://unireport.gr/2024%20UNIREPORT%20ΠΡΟΣΑΡΤΗΜΑ.PDF)
