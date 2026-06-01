@@ -91,3 +91,7 @@
 [2024 UNIREPORT ΟΙΚΟΝΟΜΙΚΕΣ ΚΑΤΑΣΤΑΣΕΙΣ.PDF](https://unireport.gr/2024%20UNIREPORT%20ΟΙΚΟΝΟΜΙΚΕΣ%20ΚΑΤΑΣΤΑΣΕΙΣ.PDF)
 
 [2024 UNIREPORT ΠΡΟΣΑΡΤΗΜΑ.PDF](https://unireport.gr/2024%20UNIREPORT%20ΠΡΟΣΑΡΤΗΜΑ.PDF)
+
+[2025 UNIREPORT ΟΙΚΟΝΟΜΙΚΕΣ ΚΑΤΑΣΤΑΣΕΙΣ.PDF](https://unireport.gr/2025%20UNIREPORT%20ΟΙΚΟΝΟΜΙΚΕΣ%20ΚΑΤΑΣΤΑΣΕΙΣ.PDF)
+
+[2025 UNIREPORT ΠΡΟΣΑΡΤΗΜΑ.PDF](https://unireport.gr/2025%20UNIREPORT%20ΠΡΟΣΑΡΤΗΜΑ.PDF)
